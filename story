@@ -1,0 +1,1 @@
+Once upon a time in a forest, there lived a Monkey who resided on a berry tree, which was on the bank of a river. In the same forest lived a crocodile, and his wife.
